@@ -1,4 +1,4 @@
-# ICC Champions Trophy 2025 Live on Ten Sports & PTV Sports
+# ICC Champions Trophy 2025 Live on ((Ten Sports & PTV Sports))
 
 PTV Sports is set to captivate cricket fans once again with its live broadcast of the **ICC Champions Trophy 2025**. Known as Pakistan’s premier sports channel, it has a legacy of providing uninterrupted live coverage of major cricket tournaments. This year’s **Champions Trophy** is highly anticipated, and **PTV Sports** ensures fans stay connected to every thrilling moment.
 
@@ -9,9 +9,6 @@ PTV Sports is set to captivate cricket fans once again with its live broadcast o
 |![ICC-Champions-Trophy-2025](https://github.com/user-attachments/assets/eb0c49aa-ae7e-4ae0-a94f-0153617a517c)
 
 Watch ICC Champions Trophy 2025 live on Crictime! Enjoy free HD cricket streaming with English and Hindi commentary. Don't miss a moment of the action!Pakistan vs New Zealand, 1st Match, Group A at Karachi, Champions Trophy, Feb 19 2025 – Live Cricket Score
-
-
-
 
 ## What Makes Ten Sports Live a Top Choice for Cricket Fans?
 
